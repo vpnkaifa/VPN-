@@ -3,7 +3,8 @@
 # 客户不仅能购买机场订阅还可以在平台购买私有的服务器或者住宅ip，用来做外贸或者tiktok直播等。
 # 网络延迟在 30 毫秒以内，需要加速优化的也可以交流，有效果图。
 # 服务器端和客户端都支持多语言。国际化出海无压力。ads买量及新媒体推广欢迎交流。
-# TG：QT315
+# ![微信图片_20241011223049](https://github.com/user-attachments/assets/25e35055-656f-4fd7-8776-543414d4656a)
+# TG：@QT315
 # http://www.489486.cyou/
 ![11](https://github.com/user-attachments/assets/ce301df2-52df-4212-8b2a-6092842477f0)
 ![10](https://github.com/user-attachments/assets/d397ca69-fbc7-4c58-9bc3-7cc144d66acb)
@@ -18,3 +19,4 @@
 ![4](https://github.com/user-attachments/assets/42abc22c-70df-4542-98f2-7d9779dca41e)
 # TG：QT315
 # TG：QT315
+![微信图片_20241011223049](https://github.com/user-attachments/assets/25e35055-656f-4fd7-8776-543414d4656a)
